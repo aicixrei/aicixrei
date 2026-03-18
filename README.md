@@ -1,4 +1,4 @@
-silly gifs board I made for my yumeship \ ( ^ - ^ ) /![1000006206](https://github.com/user-attachments/assets/b892d682-8be9-450c-aded-26404e51df63) 
+silly gifs I made for my yumeship \ ( ^ - ^ ) /![1000006206](https://github.com/user-attachments/assets/b892d682-8be9-450c-aded-26404e51df63) 
 ![1000006146](https://github.com/user-attachments/assets/18861704-5b93-4d5a-a28d-da6ab3628e43)
 ![1000006156](https://github.com/user-attachments/assets/7680db11-6c6d-4d35-b00b-34f463221e35)
 
